@@ -1,4 +1,4 @@
-Hey! my name is David but you can call me shellc0de!
+Hey! my name is jack but you can call me shellc0de!
 
 I'm a developer begginer.
 ------------------------------------------------------
