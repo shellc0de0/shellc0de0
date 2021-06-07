@@ -1,6 +1,6 @@
 Hey! my name is Joseph but you can call me shellc0de!😅
 
-I live in england and i'm currently living here as well!🤓
+I'm from england and i'm currently living here as well!🤓
 
 I'm a developer begginer.🔐
 ------------------------------------------------------
